@@ -54,7 +54,7 @@ Explore meus repositórios para ver mais dos meus trabalhos!
 ## 📫 Contato
 
 - 💌 **Email**: [arthuraguiar6380@gmail.com](mailto:arthuraguiar6380@gmail.com)
-- 💼 **LinkedIn**: (www.linkedin.com/in/arthur-rodrigues-27b551232)
+- 💼 **LinkedIn**: www.linkedin.com/in/arthur-rodrigues-27b551232
 
 ---
 
